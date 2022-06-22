@@ -1,2 +1,0 @@
-# Kapinda
-İfyucell
