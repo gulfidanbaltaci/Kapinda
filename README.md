@@ -1,0 +1,1 @@
+# Kapinda By GULFIDAN BALTACI
